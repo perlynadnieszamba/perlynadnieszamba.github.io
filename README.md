@@ -1,4 +1,5 @@
 # Perły na dnie szamba
+# Nogi same się rwą [przekaz dla calego świata](https://www.youtube.com/watch?v=yzWFL1y0Uiw)
 # Nieodgadnione
 Nikt nie wie kim jest oskarżony generał Gromosław Cz. Nawet promyka światła na tę kwestię nie rzucił wywiad z jego synem Andrzejem Czępińskim.
 # Bulgot szamba [Mutandoia](https://www.youtube.com/watch?v=Cr8K88UcO0s)
